@@ -15,5 +15,3 @@ Meu nome é lucas aguiar silva
 ![](https://media.tenor.com/yH7VNOv-bSwAAAAM/jujutsu-kaisen-sukuna.gif)
 
 ![](https://media.tenor.com/h28gQDXtk54AAAAM/gojo-satoru-jjk-memes.gif)
-
-![](https://media.tenor.com/7Eh59z3UmosAAAAm/jogoat-jujutsu-kaisen.webp)
